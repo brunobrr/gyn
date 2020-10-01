@@ -1,2 +1,0 @@
-# gyn
-# Ontem comi macarrão
